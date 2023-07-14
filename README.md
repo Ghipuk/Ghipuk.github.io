@@ -1,2 +1,2 @@
-Kontollllll
+
 # Ghipuk.github.io
